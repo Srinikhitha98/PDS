@@ -1,3 +1,8 @@
+Sri Nikhitha Boddapati
+
+16322365
+
+
 Student Performance
 
 We have to analyse data using different Parametres.
